@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working On ORYX<br>14 YO<br>HTML, CSS<br>Passionate software web Dev | Graphic designer<br>
+Working On Random things<br>14 YO<br>HTML, CSS<br>Passionate software web Dev | Graphic designer<br>
 
 
 ## 🌐 Socials:
